@@ -1,6 +1,6 @@
 # Some Knowledge & Views
 
-Welcome to my page. My purpose here is to formulate my understanding of topics I am studying/working on.
+Welcome to my page. My purpose here is to formulate my understanding of topics I am studying or working on.
 
 ## Data Science
 
