@@ -2,14 +2,31 @@
 
 
 ## Dans le metro
-22 Juillet 2020
+Juillet
 
 Tôt le matin je marche dans la rue calme et fraîche. Puis je m’engouffre dans la bouche béante du métro géant. Un dédale interminable d’escaliers roulants plongent dans les abysses de la ville. Debout sur une marche, je peine à rester éveiller. Le vrombissement mécanique de la machine est monotone. Immobile je me fonds dans le décor. J'oublie que si la machine s’emballe, une marche peut se transformer en hachoir, une grille de lames de rasoirs. Je respire lentement. Je deviens machine a mon tour. Tandis que je descend, d’autres montent. Mais ils sont tous masqués. Je ne vois que leurs yeux briller. J’arrive enfin sur un pallier et je marche dans des longs couloirs traversés par la souffle de l’air conditionné. J’entends des pas. Je marche encore et longe des boutiques vides. Certaines sont meme fermees. Je passe les tourniquets. Le bip de mon pass résonne dans le blanc. Encore un escalier roulant. J’arrive sur la plateforme. Je regarde brièvement autour de moi.  D’autres aussi attendent le train. Je ressens leur peur. J’ai moi-même peur. Quelqu’un tousse quelque part. Tous les regards se tournent. Heureusement le train arrive et je monte dans mon wagon. Je m'assois et ouvre le roman que je lis en ce moment. Les stations s'enchaînent toutes les deux minutes exactement, avec la précision d’une horloge suisse. Les stations sont toutes peintes d’une couleur vive. Le rouge fait suite au vert, puis orange et bleu. Nul besoin de lever les yeux pour savoir ou je suis. A chaque arrêt les portes s’ouvrent, laissent passer un peu d’air, puis se referment tristement. Plonge dans mon roman, mon esprit commence a divaguer, a voyager. Mais soudain le train s'arrête net. “Je pensais que tout était automatique!” dis-je intérieurement. Je sens au loin quelques mouvements dans les wagons adjacents mais je refuse de me laisser distraire et me replonge dans mon roman. Quelques minutes passent. La lumière s'éteint. Un eternuement! Un cri! Mon livre tombe par terre. Je sens une odeur brûlante. Une petite flamme grossit tout à coup et remplit tout. Je suis flamme. C’est fini.
 
-## Le gâteau 
-24 Fevrier 2020
 
-Elle veut voir le gâteau qui traîne dans le frigo depuis dix jours. À l’origine un dessert surprise d’Amber, le pauvre gâteau n’est qu’une ombre de lui-même. À contrecœur je pose la boîte en carton sur la table et l’aide à l’ouvrir. J’apporte une fourchette à sa demande. Elle en mange un bout mais je refuse. Elle veut me forcer à manger. On se chamaille. On rit un peu mais on se querelle. Je suis égoïste de ne pas vouloir manger une part d’un vieux gâteau probablement indigeste. Je l’ai forcé à manger, c’est donc mon tour. Je persiste. 
+## Le bon pirate
+Juillet 
+Le soleil se lève lentement sur des dunes de sables qui se jettent dans l'océan. Quelques villages isolés tentent de survivre dans cette nature, dure, sauvage, inhumaine. Ici le jour est brûlant et la nuit glaciale. On se réchauffe comme on peut.
+
+Je me lève le premier. Je pars en mission. C’est notre dernière chance. Hier le chef du village m’a choisi. Il a réuni tous les hommes du village, une centaine, sous une immense tente blanche, remplie de tonneaux d’absinthe. 
+“L’heure est grave!” avait-il dit en brandissant son verre. Puis il avait fait un long discours sur la glace. Cela faisait trois fois que les pêcheurs rentraient bedrouille. On allait tous mourir de faim. 
+
+Il fallait sauver le village. Sans poissons on ne pourrait plus se protéger du soleil et des lions. La nature allait reprendre ses droits. Ses paroles résonnent encore dans ma tête comme un écho dans une caverne. Ce soir on allait voir qui avait la force nécessaire pour ce tour de force, commander une expédition maritime impossible, une chasse au trésor. On allait enchaîner les tournées de shots d’absinthe. Les plus faibles tomberont rapidement. Le dernier homme serait choisi. Ce fut moi. 
+“Si tu reviens sans poissons , ne reviens pas!” dit-il. 
+
+Je marche seul sur la plage et déjà le sable me brûle les pieds. Je m’assois et regarde mon prochain adversaire, l’immense océan. Le vent souffle sur mon visage. D’immenses vagues se jettent sur la plage et jettent de l’ecume dans l’air. J’attends. Des hommes arrivent. Ils titubent et se cachent le visage du soleil qui assaille leurs gueules de bois. C’est la deuxième sélection qui commence. Les trois premiers hommes qui réussissent à se lever, à marcher jusqu'à la plage, feront partir de la mission. Le premier arrive. “Bonjour!” dis-je. Il ne réponds pas et s'assoit, prenant la tête dans ses mains et priant pour qu’un nuage cache le soleil quelques instants. On regarde tous les deux la mer. “C’est agité” dis-je pour couper le silence. Il hoche la tête. Je laisse tomber. On attends. Deux autres arrivent ensemble. 
+
+On finit par embarquer. On doit passer la première barrière de vagues. 
+
+On aperçoit enfin la banquise au loin, une ligne blanche et grise à l’horizon. On se rapproche, bravant les vagues géantes qui ne cessent de nous assiéger. La bataille semble perdue d’avance mais on n’a pas assez d’essence pour rebrousser chemin. On n’a pas le choix. On doit se battre, avancer à tout prix. Le bateau saute de vague en vague, dansant dangereusement une valse de bleu et d’ecume. Une vague plus grande vient soudain nous frapper. On est tous projetés les uns contre les autres, contre les parois de bois coupant. Le bateau tourne et les vagues arrivent de côté. On va certainement chavirer. “Debout!” je cris. Mes compagnons, écorchés, se relèvent péniblement. J’empoigne la barre et nous remets dans la bonne direction. Finalement on se trouve au milieu de milliers de blocs de glaces. Il s’agit maintenant d’en attacher un au bateau. A chaque fois qu’on lance la grosse corde, elle ne fait que glisser sur la glace et tomber dans l’eau.
+
+Le moteur marche a l’essence de biere mais on a soif. Et comment résister au plaisir de la biere fraiche. De toute maniere les courants sont clements. On va pouvoir se laisser deriver. Nos heros boivent trop. L’un tombe par desssus bord. 
+Les autres jouent a lancer des glacons sur les oiseaux. 
+Ils se réveillent sur la plage, brules par le soleil, sans glace. 
+Je me réveille et je demande ou son mes compagnons. Le chef les a tues. 
 
 ## Mouvement perpetuel
 
