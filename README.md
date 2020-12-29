@@ -1,3 +1,3 @@
-# blog
+# Nouvelles 
 
-Some notes about machine learning. 
+
