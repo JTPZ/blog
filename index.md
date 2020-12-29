@@ -9,6 +9,7 @@ Tôt le matin je marche dans la rue calme et fraîche. Puis je m’engouffre dan
 
 ## Le bon pirate
 Juillet 
+
 Le soleil se lève lentement sur des dunes de sables qui se jettent dans l'océan. Quelques villages isolés tentent de survivre dans cette nature, dure, sauvage, inhumaine. Ici le jour est brûlant et la nuit glaciale. On se réchauffe comme on peut.
 
 Je me lève le premier. Je pars en mission. C’est notre dernière chance. Hier le chef du village m’a choisi. Il a réuni tous les hommes du village, une centaine, sous une immense tente blanche, remplie de tonneaux d’absinthe. 
